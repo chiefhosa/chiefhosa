@@ -9,3 +9,4 @@ chiefhosa/chiefhosa is a ✨ special ✨ repository because its `README.md` (thi
 You can click the Preview link to take a look at your changes.
 --->
 hello, i'm I and im looking for friends and a better understanding of life and some of my needs to be fulfilled
+i want everyone to succeed. all sentients and all with feelings. everything
